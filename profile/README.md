@@ -6,8 +6,8 @@ decisions will grow without bounds until the losses materialize.
 - Erik S. Naggum
 *****
 ```
-"Remember that you need a name for the colour blue when you build
+Remember that you need a name for the colour blue when you build
 a narrative, but not in action - the thinker lacking a word for
-'blue' is handicapped; not the doer."
+'blue' is handicapped; not the doer.
 ```
 - Nassim Taleb
