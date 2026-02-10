@@ -11,3 +11,9 @@ a narrative, but not in action - the thinker lacking a word for
 'blue' is handicapped; not the doer.
 ```
 - Nassim Taleb
+*****
+```
+4 (4) 352 (20) 32 (8) 176 80 (2) 16 (3) 32 48 (2) 64 (16) 80 100
+(17) 121 96 @ 170
+```
+- [18] [170] Tartarus
