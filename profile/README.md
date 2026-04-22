@@ -1,4 +1,13 @@
 ```
+Words are always and forever beautiful lies, the enemies of logic,
+when you hear them you should run away, seal your ears with wax or
+strike yourself in the head with a brick until you are unconscious.
+
+You are about to be manipulated with words, and then it will be too late.
+```
+- Edward Teach
+*****
+```
 When the overall growth of something is so rapid that an idiotic
 decision no longer causes any immediate losses, the number of such
 decisions will grow without bounds until the losses materialize.
