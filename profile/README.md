@@ -6,7 +6,7 @@ Now I'm on my hands and knees
 Traded in my god for this one
 And he signs his name with a capital G
 ```
-- Trent Reznor
+- [Trent Reznor](https://music.youtube.com/watch?v=iGsw-tlSo2Q)
 *****
 ```
 Words are always and forever beautiful lies, the enemies of logic,
