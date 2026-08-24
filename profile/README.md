@@ -36,5 +36,8 @@ a narrative, but not in action - the thinker lacking a word for
 Them that's got, shall get
 Them that's not, shall lose
 But God, bless the child that can write his own rhymes
+Some might, choose to praise
+Some might, choose to snooze
+But the style that I use is the style that's mine
 ```
 - [J Live](https://youtube.com/watch?v=js9yJapjNMA)
