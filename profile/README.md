@@ -10,6 +10,15 @@ You are about to be manipulated with words, and then it will be too late.
 - Edward Teach
 *****
 ```
+Them that's got, shall get
+Them that's not, shall lose
+But man, you gotta get it while the getting is good
+Now, if you could get it all this much and this fast
+Don't be telling me you wouldn't cause I know that you would
+```
+- [J Live](https://youtube.com/watch?v=js9yJapjNMA)
+****
+```
 When the overall growth of something is so rapid that an idiotic
 decision no longer causes any immediate losses, the number of such
 decisions will grow without bounds until the losses materialize.
@@ -24,7 +33,8 @@ a narrative, but not in action - the thinker lacking a word for
 - Nassim Taleb
 *****
 ```
-4 (4) 352 (20) 32 (8) 176 80 (2) 16 (3) 32 48 (2) 64 (16) 80 100
-(17) 121 96 @ 170
+Them that's got, shall get
+Them that's not, shall lose
+But God, bless the child that can write his own rhymes
 ```
-- [18] [170] Tartarus
+- [J Live](https://youtube.com/watch?v=js9yJapjNMA)
